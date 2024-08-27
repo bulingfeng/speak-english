@@ -4,7 +4,7 @@ Everything <u>change</u> for me when I understood this philosophy.
 
 Learn to work hard on yourself than you do on your job.
 
-If you work harder on your job, you can make a living which is fine.
+If you work hard on your job, you can make a living which is fine.
 
 If you work hard on yourself, you can make a fortune which is super fine.
 
